@@ -1,0 +1,1 @@
+El presente proyecto trata sobre la compra y venta de productos en los diferentes mercados existentes en la ciudad de Santiago de Cuba
